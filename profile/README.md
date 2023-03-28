@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-Check out my [articles](https://https://medium.com/@garunski)
+Check out my [articles](https://medium.com/@garunski)
